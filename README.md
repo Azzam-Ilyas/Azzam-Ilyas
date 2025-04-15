@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **muhammadazzamilyas@gmail.com**
 
-- 📄 Know about my experiences [1 year of experience as a pharmacist](1 year of experience as a pharmacist)
+- 📄 Know about my experiences(1 year of experience as a pharmacist)
    
 </div>
 <h3 align="left">Connect with me:</h3>
